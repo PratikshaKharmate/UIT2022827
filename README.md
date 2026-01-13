@@ -1,3 +1,3 @@
 
 Hii Good Morning!!
-Have a beautiful day..
+Have a beautiful day.
