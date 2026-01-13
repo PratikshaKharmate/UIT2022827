@@ -1,2 +1,1 @@
-Good Morning!
-Have a beautiful day.
+Good Morning!!
